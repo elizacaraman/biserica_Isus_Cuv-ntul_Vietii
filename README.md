@@ -1,1 +1,1 @@
-# biserica_Isus_Cuv-ntul_Vietii
+# biserica_Isus_Cuvântul_Vieții
